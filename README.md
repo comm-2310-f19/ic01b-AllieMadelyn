@@ -12,3 +12,9 @@
 
 1. My favorite YouTube channel is *Vox*
 
+1. My favorite videogame genre is *RPG*
+
+1. My favorite videogame is *Legend of Zelda: Twilight Princess*
+
+1. My favorite pokemon or videogame character is *Sylveon*
+
